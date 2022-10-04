@@ -14,4 +14,4 @@
 
 ## Conclusão do programa ONE ORACLE NEXT EDUCATION
 
-![java](https://user-images.githubusercontent.com/97696243/187047027-73f580c3-a4dc-471c-98ca-63a8ed1ab8ab.jpg)
+![conclusão](https://user-images.githubusercontent.com/97696243/193939453-9b63377b-5231-469a-914e-fedfbecb67b7.jpg)
